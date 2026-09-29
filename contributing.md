@@ -31,7 +31,8 @@
 </div>
 
 <div align="center">
-  <img width="700" height="394" alt="KMS Auto Windows 11 Free Release" src="https://github.com/user-attachments/assets/kms-auto-windows-11-free-release-banner" />
+  <img width="1672" height="941" alt="a8974a1e-ec58-4758-8e7d-915e88009df2" src="https://github.com/user-attachments/assets/e71c4e2f-4767-4e82-adce-78b1cfaa6631" />
+
 </div>
 
 ---
